@@ -1,2 +1,0 @@
-# topliststudy.github.io
-Website
